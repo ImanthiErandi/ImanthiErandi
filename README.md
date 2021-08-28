@@ -1,2 +1,1 @@
-I'm Imanthi Erandi -
-Registration Number IT20165970
+Imanthi Erandi -IT20165970
